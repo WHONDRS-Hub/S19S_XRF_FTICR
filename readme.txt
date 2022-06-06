@@ -1,0 +1,2 @@
+The Teams folder has manuscript documents, and is found here:
+https://teams.microsoft.com/_#/files/General?threadId=19%3A762ef18d8c614a768803da81cf6b6694%40thread.skype&ctx=channel&context=S19S_XRF_FTICR&rootfolder=%252Fteams%252FSubsurfaceBiogeochemicalResearchSFA%252FShared%2520Documents%252FGeneral%252FManuscripts%252FS19S_XRF_FTICR 
